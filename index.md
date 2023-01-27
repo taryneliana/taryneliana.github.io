@@ -20,7 +20,3 @@ MA Environment, Culture, and Media University of Miami
 Digital anthropology, Environmental archaeology, Environmental Communication, Indigenous Anthropology, and Classical and Hellenistic Greek Art and Mythology. Emphasis on anthropomorphizing animals on social media.     
 > "Any moment might be our last. Everything is more beautiful because we're doomed. You will never be lovelier than you are now. We will never be here again.”
 ― Homer, The Iliad
-
-## My links 
-
-Write some usefull links for you! 
