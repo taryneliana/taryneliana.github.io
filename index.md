@@ -2,11 +2,11 @@
 
 ## About
 
-My name is Taryn Eliana Barnett and I am a master's student at University of Miami in the Environment, Culture, and Media program. My background is in anthropology and art history. I currently work at ZooMiami on the Elephant Team in Animal Science as an Animal Care Aide. I am the co-founder of BlackOUT Art with Antonio Permuy.   
+My name is Taryn Eliana Barnett and I am a master's student at University of Miami in the Environment, Culture, and Media program. My background is in anthropology and art history. I currently work at ZooMiami on the Elephant Team in Animal Science as an Animal Care Specialist I. I am the co-founder of BlackOUT Art with Antonio Permuy.
 
 ## Contact information
-Email: [taryneliana@gmail.com](mailto:taryneliana@gmail.com)
-
+Email: [taryneliana@gmail.com](mailto:taryneliana@gmail.com) 
+Digital Humanities Website: https://taryneliana.github.io/hitchens/ 
 ## Education 
 BA Anthropology University of South Florida, St. Petersburg 
 
